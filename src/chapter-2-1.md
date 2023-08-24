@@ -1,5 +1,3 @@
-Definition of Mindfulness in the Workplace
-=================================================================================================
 
 In this chapter, we will define mindfulness in the workplace and explore its importance.
 

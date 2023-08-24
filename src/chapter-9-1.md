@@ -1,5 +1,3 @@
-The Benefits of Applying Mindfulness Skills to Leadership
-===============================================================================================================
 
 In this chapter, we will explore the benefits of applying mindfulness skills to leadership in the workplace.
 

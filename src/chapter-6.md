@@ -1,5 +1,3 @@
-Chapter 6: Enhancing Decision-Making Abilities with Mindfulness
-===============================================================
 
 In this chapter, we will explore the role of mindfulness in enhancing decision-making abilities, provide strategies for using mindfulness to make better decisions, and discuss the importance of encouraging open-mindedness and curiosity.
 

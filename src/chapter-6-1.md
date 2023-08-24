@@ -1,5 +1,3 @@
-The Role of Mindfulness in Enhancing Decision-Making Abilities
-===============================================================================================================================
 
 In this chapter, we will explore the role of mindfulness in enhancing decision-making abilities in the workplace.
 

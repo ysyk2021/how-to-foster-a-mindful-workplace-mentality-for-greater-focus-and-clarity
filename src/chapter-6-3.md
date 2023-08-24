@@ -1,5 +1,3 @@
-Encouraging Open-Mindedness and Curiosity
-==========================================================================================================
 
 In this chapter, we will explore how mindfulness can enhance decision-making abilities in the workplace by encouraging open-mindedness and curiosity.
 

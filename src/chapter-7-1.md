@@ -1,5 +1,3 @@
-The Benefits of Fostering Positive Relationships with Mindfulness
-===============================================================================================================================
 
 In this chapter, we will explore the benefits of fostering positive relationships with mindfulness in the workplace.
 

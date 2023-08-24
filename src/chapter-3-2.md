@@ -1,5 +1,3 @@
-Strategies for Incorporating Mindfulness Practices into Daily Routine
-================================================================================================================================
 
 In this chapter, we will explore strategies for incorporating mindfulness practices into daily work life.
 

@@ -1,5 +1,3 @@
-Improving Focus and Concentration with Mindfulness
-=============================================================
 
 In today's fast-paced work environment, distractions are everywhere. It can be difficult to maintain focus and concentration on the task at hand. However, by incorporating mindfulness into your daily routine, you can improve your ability to stay focused and increase your productivity. In this chapter, we'll explore strategies for improving focus and concentration with mindfulness.
 

@@ -1,5 +1,3 @@
-Strategies for Managing Stress and Anxiety with Mindfulness
-====================================================================================================================
 
 In this chapter, we will explore strategies for managing stress and anxiety with mindfulness techniques.
 

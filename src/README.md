@@ -1,4 +1,3 @@
-# Introduction
 
 Welcome to "How to Foster a Mindful Workplace Mentality for Greater Focus and Clarity". In this book, we will explore the concept of mindfulness and how it can help you create a more productive, focused, and fulfilling work environment.
 

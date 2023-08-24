@@ -1,5 +1,3 @@
-The Importance of Incorporating Mindfulness into Daily Work Life
-===========================================================================================================================
 
 In this chapter, we will explore the importance of incorporating mindfulness into daily work life and its benefits.
 

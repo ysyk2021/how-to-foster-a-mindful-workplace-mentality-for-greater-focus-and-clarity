@@ -1,5 +1,3 @@
-Leading with Intention and Purpose
-========================================================================================
 
 In this chapter, we will explore the concept of leading with intention and purpose by applying mindfulness skills to leadership.
 

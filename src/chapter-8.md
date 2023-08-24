@@ -1,5 +1,3 @@
-Chapter 8: Measuring Mindfulness Success
-========================================
 
 In this chapter, we will explore methods for measuring mindfulness success in the workplace and provide strategies for analyzing individual and team performance data to adjust mindfulness programs based on feedback.
 

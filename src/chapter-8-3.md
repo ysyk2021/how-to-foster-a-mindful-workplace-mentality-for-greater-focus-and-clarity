@@ -1,5 +1,3 @@
-Adjusting Mindfulness Programs Based on Feedback
-==========================================================================================
 
 In this chapter, we will discuss the importance of measuring mindfulness success in the workplace and adjusting mindfulness programs based on feedback.
 

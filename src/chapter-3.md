@@ -1,5 +1,3 @@
-Chapter 3: Incorporating Mindfulness into Daily Work Life
-=========================================================
 
 In this chapter, we will explore the importance of incorporating mindfulness into daily work life, provide strategies for incorporating mindfulness practices into daily routine, and discuss the benefits of practicing mindfulness during common work activities.
 

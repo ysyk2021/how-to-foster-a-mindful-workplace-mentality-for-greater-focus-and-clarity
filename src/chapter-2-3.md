@@ -1,5 +1,3 @@
-Strategies for Developing Mindfulness
-============================================================================================
 
 In this chapter, we will explore strategies for developing mindfulness in the workplace.
 

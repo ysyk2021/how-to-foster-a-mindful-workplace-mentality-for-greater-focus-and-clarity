@@ -1,5 +1,3 @@
-Chapter 2: Understanding Mindfulness in the Workplace
-=====================================================
 
 In this chapter, we will define mindfulness in the workplace, explore the impact of mindfulness on personal and professional development, and provide strategies for developing mindfulness.
 

@@ -1,5 +1,3 @@
-Analyzing Individual and Team Performance Data
-========================================================================================
 
 In this chapter, we will explore how analyzing individual and team performance data can be used to measure mindfulness success in the workplace.
 

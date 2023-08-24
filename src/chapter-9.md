@@ -1,5 +1,3 @@
-Chapter 9: Applying Mindfulness Skills to Leadership
-====================================================
 
 In this chapter, we will explore the benefits of applying mindfulness skills to leadership and provide strategies for using mindfulness to become a better leader.
 

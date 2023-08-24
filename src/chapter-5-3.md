@@ -1,5 +1,3 @@
-Practicing Mindfulness-Based Stress Reduction Techniques
-=================================================================================================================
 
 In this chapter, we will explore how mindfulness-based stress reduction techniques can be used to manage stress and anxiety in the workplace.
 

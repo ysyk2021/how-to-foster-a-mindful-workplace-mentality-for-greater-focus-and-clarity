@@ -1,5 +1,3 @@
-Strategies for Using Mindfulness to Make Better Decisions
-==========================================================================================================================
 
 In this chapter, we will explore strategies for using mindfulness to make better decisions in the workplace.
 

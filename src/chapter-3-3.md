@@ -1,5 +1,3 @@
-Practicing Mindfulness during Common Work Activities
-===============================================================================================================
 
 In this chapter, we will explore how individuals can incorporate mindfulness into daily work life by practicing mindfulness during common work activities.
 

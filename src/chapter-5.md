@@ -1,5 +1,3 @@
-Chapter 5: Managing Stress and Anxiety with Mindfulness
-=======================================================
 
 In this chapter, we will explore the impact of stress and anxiety on workplace productivity, provide strategies for managing stress and anxiety with mindfulness, and discuss mindfulness-based stress reduction techniques.
 

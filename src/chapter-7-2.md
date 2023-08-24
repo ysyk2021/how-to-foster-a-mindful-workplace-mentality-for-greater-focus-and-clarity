@@ -1,5 +1,3 @@
-Strategies for Using Mindfulness to Build Positive Relationships at Work
-======================================================================================================================================
 
 In this chapter, we will explore strategies for using mindfulness techniques to build positive relationships at work.
 

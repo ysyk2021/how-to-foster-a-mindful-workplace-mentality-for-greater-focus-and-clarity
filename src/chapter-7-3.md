@@ -1,5 +1,3 @@
-Practicing Empathy and Understanding
-==================================================================================================
 
 In this chapter, we will explore how practicing empathy and understanding through mindfulness can foster positive relationships in the workplace.
 

@@ -1,5 +1,3 @@
-The Impact of Mindfulness on Focus and Concentration
-===================================================================================================================
 
 In this chapter, we will explore the impact of mindfulness on focus and concentration in the workplace and provide strategies for improving focus and concentration with mindfulness.
 

@@ -1,5 +1,3 @@
-Strategies for Using Mindfulness to Become a Better Leader
-================================================================================================================
 
 In this chapter, we will explore strategies for using mindfulness to become a better leader in the workplace.
 

@@ -1,5 +1,3 @@
-Chapter 7: Fostering Positive Relationships with Mindfulness
-============================================================
 
 In this chapter, we will explore the benefits of fostering positive relationships with mindfulness, provide strategies for using mindfulness to build positive relationships at work, and discuss the importance of practicing empathy and understanding.
 
