@@ -10,3 +10,7 @@ Through real-life examples and evidence-based research, you'll gain a better und
 So if you're ready to foster a mindful workplace mentality and create a more fulfilling work experience, let's get started on this journey together.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
