@@ -1,5 +1,4 @@
-Chapter: The Benefits of Applying Mindfulness Skills to Leadership
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Applying mindfulness skills to leadership is a powerful approach that can greatly benefit both leaders and their organizations. This chapter explores the numerous advantages of incorporating mindfulness into leadership practices, highlighting how it enhances decision-making, cultivates emotional intelligence, fosters resilience, and promotes a positive work culture.
 

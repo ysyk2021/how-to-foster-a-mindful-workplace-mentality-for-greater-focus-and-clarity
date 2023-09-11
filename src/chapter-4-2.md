@@ -1,5 +1,4 @@
-Chapter: Strategies for Improving Focus and Concentration with Mindfulness
-==========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's fast-paced and distraction-filled world, maintaining focus and concentration can be a challenge. However, by incorporating mindfulness into our daily routine, we can cultivate a more focused and present mindset. In this chapter, we will explore effective strategies for improving focus and concentration using mindfulness techniques.
 

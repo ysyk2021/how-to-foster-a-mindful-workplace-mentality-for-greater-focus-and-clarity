@@ -1,5 +1,4 @@
-Chapter: Strategies for Incorporating Mindfulness Practices into Daily Routine
-==============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Incorporating mindfulness practices into daily routines is key to fostering a mindful workplace mentality for greater focus and clarity. This chapter explores practical strategies for integrating mindfulness into various aspects of daily life, empowering individuals to cultivate a more mindful and balanced approach to work.
 

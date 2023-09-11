@@ -1,5 +1,4 @@
-Chapter: Practicing Mindfulness During Common Work Activities
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Mindfulness is an invaluable practice that can be incorporated into various work activities to enhance focus, clarity, and overall well-being. This chapter explores how mindfulness can be applied during common work tasks, empowering individuals to cultivate a mindful workplace mentality throughout their day.
 

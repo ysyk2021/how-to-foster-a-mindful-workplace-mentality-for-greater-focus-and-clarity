@@ -1,5 +1,4 @@
-Chapter: Strategies for Using Mindfulness to Become a Better Leader
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Incorporating mindfulness into leadership practices is a transformative approach that can significantly enhance leadership skills and effectiveness. This chapter outlines practical strategies for using mindfulness to become a better leader, focusing on cultivating self-awareness, fostering empathy, improving decision-making, promoting resilience, and enhancing communication.
 

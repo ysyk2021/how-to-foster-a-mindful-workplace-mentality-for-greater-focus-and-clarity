@@ -1,5 +1,4 @@
-Chapter: The Importance of Incorporating Mindfulness into Daily Work Life
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Incorporating mindfulness into daily work life is crucial for fostering a mindful workplace mentality and achieving greater focus and clarity. This chapter highlights the significance of mindfulness in various aspects of work, emphasizing its positive impact on productivity, well-being, and overall work satisfaction.
 

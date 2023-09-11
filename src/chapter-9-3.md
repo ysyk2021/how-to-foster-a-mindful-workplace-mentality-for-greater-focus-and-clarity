@@ -1,5 +1,4 @@
-Chapter: Leading with Intention and Purpose
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's fast-paced work environment, leading with intention and purpose is essential for creating a mindful workplace mentality. This chapter explores the significance of leading with intention and provides practical strategies for aligning actions with a greater sense of purpose, fostering focus, and cultivating clarity in leadership.
 

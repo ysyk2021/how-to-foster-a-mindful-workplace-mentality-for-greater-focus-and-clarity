@@ -1,5 +1,4 @@
-Chapter: Strategies for Using Mindfulness to Make Better Decisions
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's fast-paced and demanding work environments, decision-making can often feel overwhelming and rushed. However, by incorporating mindfulness into the decision-making process, individuals can cultivate greater focus, clarity, and effectiveness. In this chapter, we will explore strategies for using mindfulness to make better decisions in the workplace.
 

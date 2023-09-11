@@ -1,5 +1,4 @@
-Chapter: Definition of Mindfulness in the Workplace
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In order to foster a mindful workplace mentality, it is important to have a clear understanding of what mindfulness means within the context of the workplace. This chapter will provide a comprehensive definition of mindfulness in the workplace, highlighting its key elements and benefits.
 

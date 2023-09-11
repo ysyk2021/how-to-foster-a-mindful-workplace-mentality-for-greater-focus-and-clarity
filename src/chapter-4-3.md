@@ -1,5 +1,4 @@
-Chapter: Using Meditation and Breathing Techniques
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's fast-paced and demanding work environment, fostering a mindful workplace mentality is crucial for promoting greater focus and clarity. One effective way to cultivate mindfulness is through the practice of meditation and breathing techniques. In this chapter, we will explore the benefits and techniques of meditation and breathing exercises that can be used to enhance focus, reduce stress, and promote a more mindful workplace.
 

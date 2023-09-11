@@ -1,5 +1,4 @@
-Chapter: Encouraging Open-Mindedness and Curiosity
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In a rapidly evolving world, maintaining an open-minded and curious mindset is essential for personal and professional growth. When individuals embrace open-mindedness, they are receptive to new ideas, perspectives, and possibilities. By fostering curiosity, they actively seek knowledge and explore diverse experiences. In this chapter, we will explore the importance of encouraging open-mindedness and curiosity in the workplace and how these qualities contribute to greater focus and clarity.
 

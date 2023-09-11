@@ -1,5 +1,4 @@
-Chapter: Strategies for Using Mindfulness to Build Positive Relationships at Work
-=================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Positive relationships in the workplace are essential for creating a harmonious and productive environment. This chapter explores various strategies for using mindfulness to cultivate positive relationships with colleagues, fostering a mindful workplace mentality.
 

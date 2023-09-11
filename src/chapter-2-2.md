@@ -1,5 +1,4 @@
-Chapter: The Impact of Mindfulness on Personal and Professional Development
-===========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's fast-paced and demanding work environments, cultivating mindfulness has become increasingly crucial for personal and professional development. This chapter explores the profound impact that mindfulness can have on individuals, enhancing their focus, clarity, and overall well-being.
 

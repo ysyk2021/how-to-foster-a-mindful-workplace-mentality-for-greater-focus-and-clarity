@@ -1,5 +1,4 @@
-Chapter: The Impact of Stress and Anxiety on Workplace Productivity
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Stress and anxiety can significantly impact workplace productivity, creating challenges for individuals and organizations alike. This chapter explores the detrimental effects of stress and anxiety on productivity and provides strategies for fostering a mindful workplace mentality to mitigate their impact.
 

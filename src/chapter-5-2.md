@@ -1,5 +1,4 @@
-Chapter: Strategies for Managing Stress and Anxiety with Mindfulness
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the modern workplace, stress and anxiety can be significant barriers to productivity and overall well-being. This chapter explores various strategies for managing stress and anxiety using mindfulness techniques, empowering individuals to cultivate a mindful workplace mentality.
 

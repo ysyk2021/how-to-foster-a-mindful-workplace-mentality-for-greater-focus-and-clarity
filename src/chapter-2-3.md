@@ -1,5 +1,4 @@
-Chapter: Strategies for Developing Mindfulness
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 To cultivate a mindful workplace mentality for greater focus and clarity, it is essential to develop mindfulness as a skill. This chapter will explore effective strategies that individuals can employ to enhance their mindfulness practice in the workplace.
 

@@ -1,5 +1,4 @@
-Chapter: The Role of Mindfulness in Enhancing Decision-Making Abilities
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's fast-paced and demanding work environment, decision-making plays a critical role in determining the success of individuals and organizations. Making effective decisions requires clarity, focus, and the ability to navigate complexity. In this chapter, we will explore how mindfulness can enhance decision-making abilities and contribute to greater focus and clarity.
 

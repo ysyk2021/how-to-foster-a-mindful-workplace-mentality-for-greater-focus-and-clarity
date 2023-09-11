@@ -1,5 +1,4 @@
-Chapter: Practicing Mindfulness-Based Stress Reduction Techniques
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 One of the most effective ways to foster a mindful workplace mentality is by practicing mindfulness-based stress reduction (MBSR) techniques. In this chapter, we will explore different MBSR techniques that individuals can use to manage stress and cultivate mindfulness in the workplace.
 
